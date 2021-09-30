@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ravi
-- 👀 I’m interested in ...
+- 👀 I’m interested in ... DESIGNING
 - 🌱 I’m currently learning ...python,networking
 - 💞️ I’m looking to collaborate on ...WEB DEVELOPMENT
 - 📫 How to reach me ...YOU TUBE CHANNEL
